@@ -1,4 +1,4 @@
-# 
+# premium dex sniper bot Module | cross-chain-arbitrage + rug-pull-detection is the best dex sniper bot, featuring cross-chain-arbitrage and rug-pull-detection. Smart, fast, and
 
 
 
